@@ -29,6 +29,6 @@ I believe that this is really important not just for those donated to but for th
 https://www.givingwhatwecan.org/about-us/members
 https://www.vox.com/future-perfect/21728843/best-charities-donate-giving-tuesday
 **Why you should be public about giving money**  
-
+https://www.givingwhatwecan.org/blog/should-charity-be-anonymous
 
 ## The fine print 
