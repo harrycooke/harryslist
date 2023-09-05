@@ -30,5 +30,5 @@ https://www.givingwhatwecan.org/about-us/members
 https://www.vox.com/future-perfect/21728843/best-charities-donate-giving-tuesday
 **Why you should be public about giving money**  
 https://www.givingwhatwecan.org/blog/should-charity-be-anonymous
-
+"The societal norm of giving anonymously might severely restrict the amount that individuals choose to give. When charity is done in silence, donors might falsely assume they are giving more than the norm. In fact, according to TIME, research suggests that 72% of people give less than average, but 75% of people think they give more than average. If we were all more open about our giving, we may have a more accurate picture and be inspired to give more."
 ## The fine print 
