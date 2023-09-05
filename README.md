@@ -1,11 +1,12 @@
 # Harry's List
 
-I’m going to match donations to the charities below up to $30,000. (TODO link some fine print here) 
 
 ## What I'm Doing
+I’m going to match donations to the charities below up to $30,000. (TODO link some fine print here) 
 
 ## Why I’m Doing It
-
+- I want to encourage people to think about how to effectively combat the issues causing the greatest suffering around the world
+- I've been lucky to lead an incredible life so far with plenty of opportunity to pursue what makes me happy and want to maximize my ability for others to do the same
 
 ## How to donate
 Go to the list below and click a link to donate. Email or text me a screenshot of the confirmation page of your donation and how much you donated if it isn’t in the screenshot. I’d also love to hear more about  
