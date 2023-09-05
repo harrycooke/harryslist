@@ -26,7 +26,7 @@ While I love the work GiveWell does (they’re on the list for a reason) in the 
 I believe that this is really important not just for those donated to but for those doing the donating. I, selfishly, want the people I’m closest with to be able to have that experience. That said, I’m pretty committed to donating the full amount and will expand my circle of people included as needed. 
 
 **Why I think everyone should donate at least 10% of their salary**  
-
+https://www.givingwhatwecan.org/about-us/members
 **Why you should be public about giving money**  
 
 
