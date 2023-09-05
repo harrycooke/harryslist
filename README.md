@@ -27,6 +27,7 @@ I believe that this is really important not just for those donated to but for th
 
 **Why I think everyone should donate at least 10% of their salary**  
 https://www.givingwhatwecan.org/about-us/members
+https://www.vox.com/future-perfect/21728843/best-charities-donate-giving-tuesday
 **Why you should be public about giving money**  
 
 
